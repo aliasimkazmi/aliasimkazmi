@@ -9,5 +9,5 @@
 - 💬 Ask me about ... 
 - 📫 How to reach me: aliasimkazmi@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love the slowest moving animals and 😻
+- ⚡ Fun fact: I love the slowest moving animals and Felines😻
 
